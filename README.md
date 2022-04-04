@@ -1,6 +1,6 @@
 # *Resume of Darkwing Duck*
 
-Before you see my resume i would like to tell about my life. I was born in the duck family. My mother mrs Creakle way archaeologist. My father mr MackDuck was the millioner.  They faund eath ather on the excavations of the mummy of King Duck I.  In  childhood i was small and weak. I am seen many bad things. After I became an adult   drake, i decided to fight    evil. 
+Before you see my resume i would like to tell about my life. I was born in the duck family. My mother mrs Creakle was archaeologist. My father mr MackDuck was the millioner.  They faund eath ather on the excavations of the mummy of King Duck I.  In  childhood i was small and weak. I am seen many bad things. After I became an adult   drake, i decided to fight    evil. 
 My mam always tell me:
 > patience and a lot of effort.
 
